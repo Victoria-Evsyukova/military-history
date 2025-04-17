@@ -1,1 +1,1 @@
-https://military-history
+https://military-history/
