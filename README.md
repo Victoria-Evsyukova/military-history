@@ -1,1 +1,1 @@
-https://military-history/
+(https://military-history.github.io/military-history/
