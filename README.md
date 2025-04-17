@@ -1,1 +1,1 @@
-https://Victoria-Evsyukova.github.io/military-history.github.io/
+https://victoria-evsyukova.github.io/military-history.github.io/
